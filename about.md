@@ -24,11 +24,11 @@ Meet our board members:
 ![Amy Gilbert Photo](assets/AG-Photo.png){: .board-photo }
 **Amy Gilbert** – President  
 Amy was born with the name Kim, Hui Ra, in Seoul, South Korea. She is the author of
-*Becoming Korean: A Memoir,* which shares the story of her adoption as a child into a white American family and her discovery and reconnection with her Korean culture and birth family. Amy has served as a board member in several national and local non-profit organizations. In addition to being the President of Korean Adoptees Together, Inc., she is the Director of the Jacksonville Korean Education Center and teaches a Korean language beginner course
+*Becoming Korean: A Memoir,* which shares the story of her adoption as a child into a white American family and her discovery and reconnection with her Korean culture and birth family. Amy has served as a board member in several national and local non-profit organizations. In addition to being the President of Korean Adoptees Together, Inc., she is the Director of the Jacksonville Korean Education Center and teaches a Korean language beginner course.
 
 ![Heidi Cabral Photo](assets/HC-Photo.png){: .board-photo }
 **Heidi Cabral** – Treasurer  
-Heidi was adopted at six months old and grew up in South Carolina with her younger sister who is also adopted from Korea. Uniquely, they had an aunt and uncle that were among the First Wave of adoptees from Korea. As an adult, she is excited to embrace her Korean heritage as she learns more about the culture and language. Part of that growing experience has included meeting up with the local Jacksonville Korean Adoptee (KAD) group. She is excited to bring more KADs together in a loving community to support each otner.
+Heidi was adopted at six months old and grew up in South Carolina with her younger sister who is also adopted from Korea. Uniquely, they had an aunt and uncle that were among the First Wave of adoptees from Korea. As an adult, she is excited to embrace her Korean heritage as she learns more about the culture and language. Part of that growing experience has included meeting up with the local Jacksonville Korean Adoptee (KAD) group. She is excited to bring more KADs together in a loving community to support each other.
 
 ![Christina Bradford Photo](assets/CB-Photo.png){: .board-photo }
 **Christina Bradford** – Secretary  
