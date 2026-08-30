@@ -30,7 +30,7 @@ Amy was born with the name Kim, Hui Ra, in Seoul, South Korea. She is the author
 **Jessica Daiello** – Vice President  
 Jessica was born in Daegu, South Korea and was adopted when she was 3 months old, living in Florida for much of her life (Gulf Coast area, Orlando, and currently Jacksonville.)  She only started to connect with other Korean Adoptees fairly recently while starting to learn and embrace her heritage, but has found a group of amazing Korean Adoptees who understand and support each other. Meeting them launched a new journey of self-discovery and kindled a desire to help support those who are on the same adventure.
 
-![Curtis Bai Photo](assets/Curtis-Headshot-KAT.jpg){: .board-photo }
+![Curtis Bai Photo](assets/Curtis-Headshot2-KAT.jpg){: .board-photo }
 **Curtis Bai** – Treasurer  
 Curtis was adopted at 2 years old from Seoul, South Korea.  He grew up in La Quinta California and moved to Jacksonville with the US Navy at 19 years old.  Curtis began his journey with the Jacksonville based Korean Adoptee (KAD) group in 2017 and participated in the Mosaic tour in 2025 for a birth search with his adoption agency.  He was unsuccessful in locating any birth family, but is excited to help others in their birth search journey.  Curtis is excited to connect with everyone and bring more KADs together to experience the supportive, loving community that many may not yet know exists.
 
