@@ -26,15 +26,15 @@ Meet our board members:
 Amy was born with the name Kim, Hui Ra, in Seoul, South Korea. She is the author of
 *Becoming Korean: A Memoir,* which shares the story of her adoption as a child into a white American family and her discovery and reconnection with her Korean culture and birth family. Amy has served as a board member in several national and local non-profit organizations. In addition to being the President of Korean Adoptees Together, Inc., she is the Director of the Jacksonville Korean Education Center and teaches a Korean language beginner course.
 
-![Jessica Daiello Photo](https://github.com/kat-inc-fl/kat-inc-fl.github.io/blob/9ac2d634d29ad9ec49eeae727c6ff6b8d29d77fc/assets/Jessica%20Headshot%20KAT.jpg){: .board-photo }
+![Jessica Daiello Photo](assets/Jessica-Headshot-KAT.jpg){: .board-photo }
 **Jessica Daiello** – Vice President  
 Jessica was born in Daegu, South Korea and was adopted when she was 3 months old, living in Florida for much of her life (Gulf Coast area, Orlando, and currently Jacksonville.)  She only started to connect with other Korean Adoptees fairly recently while starting to learn and embrace her heritage, but has found a group of amazing Korean Adoptees who understand and support each other. Meeting them launched a new journey of self-discovery and kindled a desire to help support those who are on the same adventure.
 
-![Curtis Bai Photo](https://github.com/kat-inc-fl/kat-inc-fl.github.io/blob/9ac2d634d29ad9ec49eeae727c6ff6b8d29d77fc/assets/Curtis%20Headshot%20KAT.jpg){: .board-photo }
+![Curtis Bai Photo](assests/Curtis-Headshot-KAT.jpg){: .board-photo }
 **Curtis Bai** – Treasurer  
 Curtis was adopted at 2 years old from Seoul, South Korea.  He grew up in La Quinta California and moved to Jacksonville with the US Navy at 19 years old.  Curtis began his journey with the Jacksonville based Korean Adoptee (KAD) group in 2017 and participated in the Mosaic tour in 2025 for a birth search with his adoption agency.  He was unsuccessful in locating any birth family, but is excited to help others in their birth search journey.  Curtis is excited to connect with everyone and bring more KADs together to experience the supportive, loving community that many may not yet know exists.
 
-![Aylia Kellam Photo](https://github.com/kat-inc-fl/kat-inc-fl.github.io/blob/9ac2d634d29ad9ec49eeae727c6ff6b8d29d77fc/assets/Aylia%20Headshot%20KAT.jpg){: .board-photo }
+![Aylia Kellam Photo](assets/Aylia-Headshot-KAT.jpg){: .board-photo }
 **Aylia Kellam** – Secretary  
 Aylia was born in Daegu, South Korea, and adopted at 5 months old to a family in Virginia Beach,
 Virginia, where she grew up. She moved to Jacksonville, Florida in 1998 with her husband and has three
