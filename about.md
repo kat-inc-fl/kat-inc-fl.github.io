@@ -24,7 +24,7 @@ Meet our board members:
 ![Amy Gilbert Photo](assets/AG-Photo.png){: .board-photo }
 **Amy Gilbert** – President  
 Amy was born with the name Kim, Hui Ra, in Seoul, South Korea. She is the author of
-*Becoming Korean: A Memoir,* which shares the story of her adoption as a child into a white American family and her discovery and reconnection with her Korean culture and birth family. Amy has served as a board member in several national and local non-profit organizations. In addition to being the President of Korean Adoptees Together, Inc., she is the Director of the Jacksonville Korean Education Center and teaches a Korean language beginner course.
+*Becoming Korean: A Memoir,* which shares the story of her adoption as a child into a white American family and her discovery and reconnection with her Korean culture and birth family. In addition to being the President of Korean Adoptees Together, Inc., she is also the Vice President of the Mayor's Asian American Advisory Board and the Vice President of the NE Florida Korean Association.
 
 ![Jessica Daiello Photo](assets/Jessica-Headshot-KAT.jpg){: .board-photo }
 **Jessica Daiello** – Vice President  
